@@ -1,11 +1,12 @@
 Dans le Code du travail, avant le 24 avril 2024, il n’était pas possible d’acquérir des jours de congés payés durant un arrêt de travail d'origine **non professionnelle.**
+
 -> Les dispositions SNCF de retrait de CA à partir d'un mois d'arrêt reflètent ce fonctionnement
 
 Depuis le **24 avril 2024**, le salarié en arrêt de travail en raison de **maladie ordinaire** (accident ou maladie d'origine non professionnelle) est en droit d'acquérir des congés payés.
 
 Le salarié en arrêt de travail d'origine non professionnelle bénéficie des droits à congés payés au titre de l'arrêt maladie, dans la limite de **2 jours ouvrables** (soit **24 jours ouvrables par an**) pendant la période d'acquisition des congés.
 
-Source : Service-public.fr https://www.service-public.fr/particuliers/vosdroits/F37482
+*Source : Service-public.fr https://www.service-public.fr/particuliers/vosdroits/F37482*
 
 -> Après recherche, c'est bien 20 jours minimum garantis par le droit européen, mais apparemment la loi française est dorénavant mieux-disante. Il semblerait que l'entreprise ne compte pas adapter ses textes et pratiques pour coller à ce nouveau fonctionnement au vu du courrier de la direction RH du 10 Juillet 2024.
 
@@ -21,4 +22,4 @@ Un NOTA de bas de page précise qu'il est possible d'entamer une action afin de 
 
 -> Il y a bien une possibilité de rattrapage prévue par la loi
 
-Source : Legifrance https://www.legifrance.gouv.fr/codes/article_lc/LEGIARTI000049459068
+*Source : Legifrance https://www.legifrance.gouv.fr/codes/article_lc/LEGIARTI000049459068*
