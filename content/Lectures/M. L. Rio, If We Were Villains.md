@@ -1,3 +1,6 @@
+---
+date: 2025-01-25
+---
 J'ai eu un véritable passage à vide de lecture pendant cet hiver. Une déprime (hivernale ou pas ...) et je n'arrive plus à me concentrer sur de la littérature que je qualifierais de blanche. J'ai besoin de m'évader, d'être accrochée. L'hiver dernier, j'avais réussi à maintenir un bon rythme grâce à l'incroyable *Gagner la Guerre* de Jean-Philippe Jaworski, qui m'avait transportée et que je compte bien relire.
 
 Je me suis laissée convaincre par une booktubeuse qui le comparaît au très connu *Maître des illusions* de Donna Tartt, mais en mieux. Alors ...
