@@ -2,6 +2,6 @@
 title: Lectures
 ---
 ## En ce moment, je lis ...
-Laurent Gaudé, *Chien 51*
+Harper Lee, *Ne tirez pas sur l'oiseau moqueur*
 
 ## Dernières lectures
