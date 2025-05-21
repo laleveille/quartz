@@ -1,3 +1,7 @@
+---
+date: 2025-01-20
+---
+
 Dans le Code du travail, avant le 24 avril 2024, il n’était pas possible d’acquérir des jours de congés payés durant un arrêt de travail d'origine **non professionnelle.**
 
 -> Les dispositions SNCF de retrait de CA à partir d'un mois d'arrêt reflètent ce fonctionnement

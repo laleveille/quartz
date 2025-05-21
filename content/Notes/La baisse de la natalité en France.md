@@ -1,3 +1,7 @@
+---
+date: 2025-01-16
+---
+
 J'ai écouté [une interview sur France Inter](https://youtu.be/FWze9P2T-KA?si=Vu0lMxrWOUqL18y2) concernant les chiffres de baisse de la natalité en France. Elle est au plus bas depuis la fin de la seconde guerre mondiale. C'est un sujet assez discuté dans les médias et qui demande apparemment un positionnement de nos politiques. Le président Macron a parlé il y a quelques mois de "réarmement démographique", ce qui m'a personnellement assez dérangée. Je suis une femme en âge de procréer, et je n'aime pas qu'un responsable politique sous-entende que mon ventre est au service du pays, ni que les enfants soient synonymes d'armes de guerre. Encore une petite phrase de notre président.
 
 ## En quoi c'est un problème ?
