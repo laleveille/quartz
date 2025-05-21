@@ -1,9 +1,0 @@
-Github Login
-
-npx quartz sync
-
-User :
-laleveille
-
-Personnal acess token (remplace le password) :
-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
