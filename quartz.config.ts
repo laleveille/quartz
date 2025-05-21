@@ -18,7 +18,7 @@ const config: QuartzConfig = {
     locale: "fr-FR",
     baseUrl: "https://sansindiscretion.fr",
     ignorePatterns: ["private", "templates", ".obsidian"],
-    defaultDateType: "modified",
+    defaultDateType: "created",
     theme: {
       fontOrigin: "googleFonts",
       cdnCaching: true,
