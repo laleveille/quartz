@@ -1,0 +1,10 @@
+---
+date: 2025-05-25
+---
+Ça faisait longtemps que je n'avais pas lu de roman historique. C'est aussi un genre que j'affectionne mais je suis assez exigeante sur la qualité historique des informations. J'ai lu quelques tomes des *Rois maudits* de Maurice Druon (tiens, ça me donne envie de m'y replonger !) et je cherchais une lecture du même niveau de véracité historique.
+
+Ici, on est dans quelque chose de plus léger que la saga Druon. C'est une sorte de romance médiévale, et je dois dire que ce mélange des genres est assez agréable ! Suivre les peines de cœur et les destinées (surtout matrimoniales, il est vrai) de la famille Brunel, orfèvres parisiens du XIIIème siècle, sert en fait surtout de prétexte à une peinture plus vraie que nature du paysage et de la vie quotidienne d'une famille bourgeoise de la capitale dans les années 1200. Selon la préface et quelques recherches perso, les descriptions seraient assez fidèles à la réalité historique. Néanmoins, peut-être que le rôle des femmes y serait un poil trop romantisé, et la dureté du quotidien légèrement édulcorée. Qu'importe, on se rend surtout compte que même si 800 ans nous séparent, les préoccupations principales et les aspirations des gens sont restées les mêmes. Aimer et être aimé, s'intégrer à un groupe, vivre en sécurité et en santé, se réaliser.
+
+J'aime ces romans où, à travers une fiction que je sais assez fiable historiquement parlant, je peux en confiance me sentir proche des hommes, de l'humanité. Et je pense que finalement, les aspirations ne devaient pas être bien différentes si l'on remonte encore dans le temps, dans l'Antiquité, et peut-être même avant. Ne se sent-on pas alors individuellement complètement partie d'une longue histoire humaine ?
+
+Néanmoins, l'intrigue de ce roman est assez convenue, les péripéties ne m'ont pas non plus transportées. Le style est agréable et surtout soutenu d'un art certain pour les descriptions et l'ambiance. Je ne suis pas certaine de poursuivre avec le tome 2 de cette duologie qui continue de suivre la même famille une ou deux générations plus tard, l'intérêt purement narratif me semble limité.

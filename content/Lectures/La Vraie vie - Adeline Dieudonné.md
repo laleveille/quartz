@@ -1,0 +1,6 @@
+---
+date: 2025-06-01
+---
+Quelle claque que ce roman ! Voilà une lecture qui m'a accrochée jusqu'à la fin et bouleversée. D'une plume simple mais acerbe, avec de l'humour parfois et beaucoup de délicatesse toujours, l'autrice nous plonge dans la vie d'une famille de classe moyenne lambda, vivant en pavillon dans un quartier résidentiel indéterminé. La jeune fille et son petit frère semblent vivre une vie normale et heureuse, un tragique accident survient, et tout bascule d'un coup, mais les évolutions apparaissent subrepticement.
+
+On découvre peu à peu la violence d'un père, la terreur des enfants, l'emprise dont est victime une mère battue, la noirceur imprimée par le trauma d'enfance jamais traité, le silence de tous. J'ai adoré la personnalité de l'héroïne, que l'on voit se déployer au fil des ans, sa résilience et ses stratégies de résistance. J'ai frissonné avec elle des épreuves qu'elle a dû traverser, j'ai compris son abyssal besoin de reconnaissance et d'amour, j'ai résonné avec sa manière de s'extraire de son quotidien par l'esprit. J'ai tellement été en empathie pour son petit frère ... Vraiment, ce court roman est une perle absolue et m'a fait vibrer.

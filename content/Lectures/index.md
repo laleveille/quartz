@@ -2,6 +2,7 @@
 title: Lectures
 ---
 ## En ce moment, je lis ...
-Jeanne Bourin, *La chambre des dames*
+
+Quelques recherches documentaires sur l'empire romain
 
 ## Dernières lectures
